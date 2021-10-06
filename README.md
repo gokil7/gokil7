@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Gokil  
-- 📫 How to reach me @gokl7
+- 📫 Reach me @gokil22797@gmail.com
 
 <!---
 gokil7/gokil7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
